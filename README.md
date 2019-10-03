@@ -40,12 +40,12 @@ I was born on march 13 2001 during a blizzard in boston massachusetts were I liv
 
 ## :books: Favorite books :books:
 
-- [How to Lead a Life of Crime]([https://www.amazon.com/Lead-Life-Crime-Kirsten-Miller/dp/1595146490/ref=sr_1_1?keywords=how+to+lead+a+life+of+crime&qid=1569589309&s=gateway&sr=8-1](https://www.amazon.com/Lead-Life-Crime-Kirsten-Miller/dp/1595146490/ref=sr_1_1?keywords=how+to+lead+a+life+of+crime&qid=1569589309&s=gateway&sr=8-1)) by Kirsten Miller
+- [How to Lead a Life of Crime](https://www.amazon.com/Lead-Life-Crime-Kirsten-Miller/dp/1595146490/ref=sr_1_2?crid=SIZNY9A2XGTC&keywords=how+to+lead+a+life+of+crime&qid=1570105613&s=gateway&sprefix=how+to+lead+a+life+of+%2Caps%2C130&sr=8-2) by Kirsten Miller 
 
-- [Sandman Slim]([https://www.amazon.com/Sandman-Slim/dp/B002IFLWF2/ref=sr_1_2?crid=AGGO4RPGYV4Z&keywords=sandman+slim+book+1&qid=1569589364&s=gateway&sprefix=snadman+slim%2Caps%2C149&sr=8-2](https://www.amazon.com/Sandman-Slim/dp/B002IFLWF2/ref=sr_1_2?crid=AGGO4RPGYV4Z&keywords=sandman+slim+book+1&qid=1569589364&s=gateway&sprefix=snadman+slim%2Caps%2C149&sr=8-2)) By Richard Kadrey
+- [Sandman Slim](https://www.amazon.com/Sandman-Slim/dp/B002IFLWF2/ref=sr_1_2?crid=2XUKETFU2AC4X&keywords=sandman+slim+book+1&qid=1570105674&s=gateway&sprefix=snadman+sl%2Caps%2C140&sr=8-2) by Richard Kadrey 
 
   
   
 
--  [Jack & Jill (Alex Cross Book 3)]([https://www.amazon.com/Jack-Jill-Alex-Cross-Book-ebook/dp/B000FA65HW/ref=sr_1_1?crid=O4VJGB73CMMF&keywords=jack+and+jill+james+patterson&qid=1569589448&s=gateway&sprefix=jack+and+ji%2Caps%2C148&sr=8-1](https://www.amazon.com/Jack-Jill-Alex-Cross-Book-ebook/dp/B000FA65HW/ref=sr_1_1?crid=O4VJGB73CMMF&keywords=jack+and+jill+james+patterson&qid=1569589448&s=gateway&sprefix=jack+and+ji%2Caps%2C148&sr=8-1)) by James Patterson
+-  [Jack & Jill (Alex Cross Book 3)](https://www.amazon.com/Jack-Jill/dp/B074N7BFQR/ref=sr_1_1?crid=299X1AMDLDD9G&keywords=jack+and+jill&qid=1570105727&s=audible&sprefix=jack+and+jill%2Caudible%2C137&sr=1-1) by James Patterson 
 
