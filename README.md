@@ -49,3 +49,15 @@ I was born on march 13 2001 during a blizzard in boston massachusetts were I liv
 
 -  [Jack & Jill (Alex Cross Book 3)](https://www.amazon.com/Jack-Jill/dp/B074N7BFQR/ref=sr_1_1?crid=299X1AMDLDD9G&keywords=jack+and+jill&qid=1570105727&s=audible&sprefix=jack+and+jill%2Caudible%2C137&sr=1-1) by James Patterson 
 
+
+## :headphones: Favorite song artist :headphones:
+
+-  [Call me karizma](https://www.bing.com/search?q=call+me+karizma&PC=U316&FORM=CHROMN)
+
+-   [Grandson](https://www.bing.com/search?q=grandson&qs=n&form=QBRE&sp=-1&ghc=1&pq=grandson&sc=8-8&sk=&cvid=5AE727487C384292B7E6A4FB15B4AFB7)
+    
+
+
+- [ Hozier](https://www.bing.com/search?q=hozier&FORM=AWRE)
+    
+
